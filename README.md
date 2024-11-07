@@ -4,6 +4,11 @@
 
 🤔 Actuellement à la recherche de travail.
 
+***Je travaille actuellement pour :***
+
+- **Wiloria** | Serveur PvP Faction en 1.20.6 [![Wiloria](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)]([https://discord.com/users/957207055838638111](https://discord.gg/Fmv5CTRTDg))
+
+
 
 ## 🌐 Réseaux sociaux :
 
