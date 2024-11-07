@@ -5,4 +5,4 @@
 
 🌐 Réseaux sociaux :
 
-[Discord](https://discord.com/users/957207055838638111)
+https://discord.com/users/957207055838638111
